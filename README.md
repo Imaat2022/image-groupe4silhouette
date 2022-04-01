@@ -1,0 +1,1 @@
+# image-groupe4silhouette
